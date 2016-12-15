@@ -4,7 +4,7 @@ It began.
 
 A dull whirring. A faint noise. A slow thud. Fading away to a distance. Everything was dark. Darker than the deepest sleep. It was all a void, except for the noise. The noise that kept on thudding, growing slightly louder with each beat and stomp. Throb, throb, throb, it went on. Persuasive as ever.
 
-There is a curious thing about noises that beat on constantly. If you want, you can make it feel like a rhythm; imagine dull thuds as beats of a drum; imagine echoes as voices singing away some unknown, bittersweet melody. If you let the chaos of noise wash all overyou, you would appreciate its uncertainty, its dynamic nature; you would flow along, no longer resisting. If you can imagine, you can make music out of chaos.
+There is a curious thing about noises that beat on constantly. If you want, you can make it feel like a rhythm; imagine dull thuds as beats of a drum; imagine echoes as voices singing away some unknown, bittersweet melody. If you let the chaos of noise wash all over you, you would appreciate its uncertainty, its dynamic nature; you would flow along, no longer resisting. If you can imagine, you can make music out of chaos.
 
 But this noise, this sound, wasn't the everyday rubbish that blare on the psychispeakers of the Immemorial Pub. These beats carried a sense of physical pain; dull shocks that joined the throbbing sound in the void; the pain multiplying with each beat. It was like putting your head on an anvil and asking an ironsmith to beat the head with a hammer on a slow progressive drum roll.
 

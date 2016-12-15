@@ -1,63 +1,13 @@
-# Eastland ahoy!
+# Phantoms of the past
 
-It was almost dark. Mantri was lighting up the evening lamps when a hovermobile entered the lane. It scooted up his front porch and stopped outside the gate. The intercom crackled.
+Hakim was having a rather pleasant day at work. The Grand Stools, where he has been bartending for over 10 years now, had given him a bunch of drunk friends. They would come early in the evenings, sit around the bar and tell Hakim tales of their past adventures. This evening a gentlewoman by the name of Gumbri was telling (loudly) about the days when she traded with the Iron Merchants of Felium.
 
-*"Ubu Ho of Special Corps reporting in, sir! I have got hostage Roth Beduin ready for transfer. Requesting authorization to enter premises to complete the task."*
+*"You should have seen theeer sheeeps"*
 
-*"It's okay, Ubu. Spare me the formalities. Just bring her in. Oh, and, leave your vehicle outside, and avoid tramping on my newly planted Petunias."*
+*"Their what?"*
 
-*"Affirmative, sir! Ermm.. Okay."*
+*"Their ships. Sorry. Lost it for a while... Ah, those ships! Somebody pass me a water. With mast held aloft, and sails made of Felium silk. All golden they glowed in the sunset. At times I used to wonder what they hid in the giant bellies of their ships. I had once managed to sneak past their guards, dressed as a Felium lass. But no luck. All I got to see was a huge pile of what definitely looked like Iron. Pure, rust-free Iron."*
 
-***
+*"How did they manage to float that much of iron on water?"*, asked a relatively sober listener.
 
-He gunned down the engine, got out of the vehicle and scanned his ID card at the security scanner on the door. The door slowly swung open inwards. In Eastland, it was considered discourtesy to open your doors outwards. That way, no one was ever confused about whether to push or pull the door. You push the door while coming in and pull the door while going out. Children in Eastland were taught that in their social sciences. It was simple and straightforward, like almost everything else in Eastland. But Roth did not grow up there. She pulled at the door.
-
-*"You need to push it."*
-
-*"Oh."*
-
-*"What did they teach you in school?"*
-
-*"History, Geography, Physics, Maths, Astronomy. Not how to open a door. We learnt that through trial and error."*
-
-*"How so unobvious!"*
-
-***
-
-They went in through the hall and up the round stairs to the landing on first floor. Mantri was waiting with a wide, innocent smile and a freshly bloomed Petunia in hand. The colour of his long robe curiously matched the colour of the flower he held. He offered the flower to Roth with his right hand and made a sweeping bow with his left hand, asking her to take a seat. Roth zeroed in on a nearby chair. Ubu awkwardly stopped midway through a salute and stood groggily at the corner of the stair.
-
-Mantri went inside and came out with a tray full of multi-coloured biscuits and three cups of tea. Ubu could not contain himself any more and blurted out.
-
-*"Should I consider the transfer successful, sir?"*
-
-*"Yes, Ubu. Help yourself to some tea and biscuits."*
-
-*"I need to get going, sir. I am posted on the borders tonight."*
-
-*"Oh, then you must go. Nasty business, managing borders. Don't be afraid to drop by."*
-
-*"Thank you sir. Could you please let the Corps know of the progress?"*
-
-*"Will do. So long."*
-
-*"So long, sir."*
-
-Ubu strutted downstairs, went out, got into the vehicle and flew away.
-
-*"I didn't know it could fly. Neat stu..."*
-
-Roth remarked and turned to Mantri as he was about to sit on the sofa facing her. As he sat, his gown turned brown, matching the colour of the sofa. Roth forgot to complete the sentence, and forgot to shut her mouth.
-
-*"Neat stuff, eh? This is one of my latest inventions. I call it the Girgit. It is intended to be used in the army, bless those poor tasteless souls!Just think of the fashion statement it can have! Clothes that change colours to match their surroundings! Isn't it wonderful?"*
-
-Roth thought of multiple replies to that question. She managed to squeak out a *Yes*. She suddenly realized that this morning she was fleeing from death, then she met a stranger who regarded her as a *hostage* and *transferred* her to a weird inventor who takes keen interest in revolutionzing fashion trends. Her thoughts struggled their way down her throat and forced themselves upward through her mouth. One thought won.
-
-*"Who are you?"*
-
-*"I am Mantri. Nothing after or before that. Just Mantri. Plain old Mantri. I work for myself, but the Eastland Government thinks I do neat stuff, eh? They pay me well and I get some nice perks! Like secretly getting things done through the Special Corps. They also call me their Science Chief."*
-
-*"Why did that guy call me a 'hostage'?"*
-
-*"Oh! Poor Ubu! Too deep in army-speak. I had contacted the Special Corps and asked them to bring you to my place by evening. Good chaps did just that. Now, once you are done with your tea, we have some science to discuss. Oh! And, welcome to Eastland! Hope you have a nice stay here."*
-
-Mantri winked and went inside. Roth forgot to shut her mouth, again.
+*"'Tis said that the old Felium ships had anti-gravity propellers hidden below the ships. During an attack, the Felites could fly those ships out of danger. Later on, when one of their kins discovered the value pure Felium Iron in the world outside, they tweaked the same technology to ship tons and tons of these high grade Iron to other states."*

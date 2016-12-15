@@ -1,7 +1,12 @@
-# Times uncertain
+# Times Uncertain
 
-> These are stories from a lost realm of knowledge. Lost somewhere along the multiple axis of time. These may have happened. Or may be not. It is uncertain. The only certainty is a paradox. Can it be solved? Who knows.
 
-This is the source (manuscript) for the book.
+This is the source (manuscript) for the book, [*Times Uncertain*](https://leanpub.com/times-uncertain) by [Kaustav Das Modak](https://kaustavdm.in).
 
-License: [Creative Commons Attribution-ShareAlike 3.0 Unported (CC BY-SA 3.0)](http://creativecommons.org/licenses/by-sa/3.0/deed.en_US)
+## Teaser
+
+These are stories from a lost realm of knowledge. Lost somewhere along the multiple axis of time. These may have happened. Or may be not. It is uncertain. The only certainty is a paradox. Can it be solved? Who knows.
+
+## License
+
+This book is licensed under [Creative Commons Attribution 4.0 International License](http://creativecommons.org/licenses/by/4.0/).

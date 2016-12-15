@@ -1,6 +1,6 @@
 # Don't you worry
 
-A long Road went straight, on and on, as far as the eyes could stare. It ran across a long wide plain - almost a desert, painted dull yellow by the ever blowing wind. On either side of the Road, near the edge of the eye, the lands curved upward into small hills. Those hills were the only shelter from the cold east wind that tore through the plains of Outland. The only friends a traveller could make on this road were the small thorny shrubs that grew about on the roadside.
+The long Road went straight on and on, as far as the eyes could stare. It ran across a long wide plain - almost a desert, painted dull yellow by the ever blowing wind. On either side of the Road, near the edge of the eye, the lands curved upward into small hills. Those hills were the only shelter from the cold east wind that tore through the plains of Outland. The only friends a traveller could make on this road were the small thorny shrubs that grew about on the roadside.
 
 Around midday, the Road took on an eerie look. Horizon melted away, unifying sky and land a dull display of amber. Wisps of heat curled up into fleeting mirages.
 

@@ -1,4 +1,4 @@
-prologue.txt
-chapter1.txt
-chapter2.txt
-chapter3.txt
+prologue.md
+chapter1.md
+chapter2.md
+chapter3.md

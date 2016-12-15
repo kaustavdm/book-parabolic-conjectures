@@ -1,2 +1,2 @@
-prologue.txt
-chapter1.txt
+prologue.md
+chapter1.md

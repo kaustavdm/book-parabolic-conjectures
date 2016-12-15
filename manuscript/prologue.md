@@ -24,22 +24,22 @@ The pain in his head was now reaching its peak. He tried to open his mouth, but 
 
 There were shapes alright, but they seemed to be hovering. *Not good, not good!* If there is one thing they say about waking up and seeing gurgling beings hovering around you, it is that you have been abducted. That too by the worst possible folks in the known universe. The Katoon fleets. They abduct you for fun. Only to sell you to the highest bidder in their all-year-round clearance sales.
 
-*Not the Katoons! Not them!*, he thought.
+*Not the Katoons! Not them*, he thought.
 
 But there was no mistaking those hovering swooshes. The round blob-like figures, a smaller blob on top of a larger blob, hovering a feet above ground - it had to be the Katoons.
 
 There was a sharp beep. The throbbing stopped. All pain washed away. He wondered aloud, *Did I just die?*
 
-*No-hh!*, a dry voice retorted, still gurgly.
+*No-hh*, a dry voice retorted, still gurgly.
 
-*Goo-hhd!*, remarked another dry voice. It had an annoyingly high pitch.
+*Goo-rrhhd*, remarked another dry voice. It had an annoyingly high pitch.
 
-*Restoration complete. All units have resumed normal activities.*, the first voice spoke again, this time sounding perfectly clear. No traces of that weird gurgling in its voice.
+*Restoration complete. All units have resumed normal activities*, the first voice spoke again, this time sounding perfectly clear. No traces of that weird gurgling in its voice.
 
-*Welcome to Katoon HQ Forty-two slash Two.*, said the second voice, also sounding clear. *You have been injected with the pain remover serum and the translator serum. It should remove all your physical pains and you should be able to understand us and speak with us during your brief stay here. If you understood what I just said, say "Yes". Else you are of no use, so you may as well stay shut.*
+*Welcome to Katoon HQ Forty-two slash Two*, said the second voice in a clear, flat tone. *You have been injected with the pain remover serum and the translator serum. It should remove all your physical pains and you should be able to understand us and speak with us during your brief stay here. If you understood what I just said, say "Yes". Else you are of no use, so you may as well stay shut.*
 
 He said *Yes*. Surprisingly, it took no effort at all.
 
-*That's very good news! Up you get, Orator Blink! Entertain us! For therein lies your salvation.*, remarked the second voice. *Conditions applied!*, it added in a whisper at the end.
+*That's very good news! Up you get, Orator Blink! Entertain us! For therein lies your salvation*, remarked the second voice. *Conditions applied*, it added in a whisper at the end.
 
 Thus, it began.

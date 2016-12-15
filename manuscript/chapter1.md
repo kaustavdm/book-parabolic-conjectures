@@ -2,7 +2,7 @@
 
 The long Road went straight on and on, as far as the eyes could stare. It ran across a long wide plain - almost a desert, painted dull yellow by the ever blowing wind. On either side of the Road, near the edge of the eye, the lands curved upward into small hills. Those hills were the only shelter from the cold east wind that tore through the plains of Outland. The only friends a traveller could make on this road were the small thorny shrubs that grew about on the roadside.
 
-Around midday, the Road took on an eerie look. Horizon melted away, unifying sky and land a dull display of amber. Wisps of heat curled up into fleeting mirages.
+Around midday, the Road took on an eerie look. Horizon melted away, unifying sky and land in a dull display of amber. Wisps of heat curled up into fleeting mirages.
 
 This was the Outland Road. No one traveled on it in daytime, unless their life depended on crossing it and reaching the nearest settlement of Eastland on the other side of the road by sundown. The Road spanned more than halfway of the continent, connecting the organized and safe Eastland on the east coast to the deadly and wild Westland on the west coast.
 
@@ -90,6 +90,8 @@ Roth thought of multiple replies to that question. She managed to squeak out a *
 
 *"Why did that guy call me a 'hostage'?"*
 
-*"Oh! Poor Ubu! Too deep in army-speak. I am rather fond of him though. How did I know that you were in danger? Let's just say that I knew you would be in danger by this morning. I had contacted the Special Corps and asked them to bring you to my place by evening. Good chaps did just that. Now, once you are done with your tea, we have some science to discuss. Oh! And, welcome to Eastland! Hope you have a nice stay here. Leave your worries behind."*
+*"Oh! Poor Ubu! Too deep in army-speak. I am rather fond of him though"*.
+
+Seeing a flush of curiosity on Roth's face, Mantri asked, *"How did I know that you were in danger?"*  Roth nodded. Mantri took that as a *yes* and continued, *"Let's just say that I knew you would be in danger by this morning. I had contacted the Special Corps and asked them to bring you to my place by evening. Good chaps did just that. Now, once you are done with your tea, we have some science to discuss. Oh! And, welcome to Eastland! Hope you have a nice stay here. Leave your worries behind."*
 
 Mantri winked and went inside. Roth forgot to shut her mouth, again.
